@@ -1,3 +1,3 @@
 # Presentations
 
-Presentations that I have put together fot the team
+Presentations that I have put together for the team
